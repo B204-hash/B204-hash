@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (don't do that, trust me on that)
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I'll blow my brains out by the end of the week
+- ⚡ Fun fact: I'm inside your walls 
 
 <!---
 B204-hash/B204-hash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
